@@ -1,0 +1,1 @@
+# Ma-lumotlarni-ishlash
